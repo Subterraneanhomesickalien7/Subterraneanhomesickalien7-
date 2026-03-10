@@ -7,5 +7,6 @@ Feel free to boop/whisper whenever!!!I promise im friendly gang😔 Ill probably
 ![blinkie](https://external-media.spacehey.net/media/sH3a192qklSPJ7kFTubvaoCBLBHO1-p_UWpV6usumIXc=/https://64.media.tumblr.com/bfcd2051c92ab788818446a2476630a1/5b39b9dd6b4ec42f-93/s250x400/a74f50b51595d9e3016e6a1bff6d6128693fc8d9.gifv)
 ![blinkie](https://external-media.spacehey.net/media/sHBl_5Pvwj1J9GFZ8XaKiQBQIOjVkN0TC1KjeVly6Hqg=/https://64.media.tumblr.com/1522c8299d45245a84c43735c808478f/11cbf2e04c572962-d9/s250x400/1581543901651530a6baf11286fba3723a85ae1d.gifv)
 ![blinkie](https://64.media.tumblr.com/cc4664fa519daab024e5b9058620eed9/a0e824d0e7ce6f86-2a/s250x400/a5f3a762959dfffeb322ad3f3fdaa9c4df1ee223.gifv)
+![blinkie](https://64.media.tumblr.com/2860a62952f77cf1de482468d47da42b/b0312ff9d0c62524-0d/s250x400/3966ecc7ff924a3fa13f3828f7d675bd58b885f8.gifv)
 ![blinkie](https://external-media.spacehey.net/media/seqfjNnPm-w9Su566Z8MKGEZSQorpfJ9zW658lC80ylI=/https://64.media.tumblr.com/971bea80e191d33213ac6f2437b356e7/c5b770b6f6375a19-8f/s250x400/9a8dd219ee70ff19e6a0c91c049492a646b38377.gifv)
 ![blinkie](https://external-media.spacehey.net/media/sJMw7gnXLJaV1XTuCh-B7YbrAqPH6RcmVn5ONAMGpM7I=/https://64.media.tumblr.com/6d12a2374206fe6e8fde0798e3e32894/b4a8996229d50d4f-94/s250x400/3acc1cd69506129cb3b230f1a2d5765969d5869c.gifv)

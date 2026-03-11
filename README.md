@@ -1,4 +1,4 @@
-# Subterraneanhomesickalien7-
+# subterraneanhomesickalien7-
 HI!!!
 Feel free to boop/whisper whenever!!!I promise im friendly gng😔 Ill probably make a Strawpage for more info soon, here are some blinkies for now (not mine)
 <img src="https://external-media.spacehey.net/media/spSS3DhDcHcp7tpqoJH0CTiMoH288stkHBzz4_7gtgFo=/https://64.media.tumblr.com/ddca9fd5f24f3ec762caecc0c29a9584/7ca3b01fde00cddf-98/s400x600/6c70baa37d9a52a18d4db12b973507a9ccf7ea50.pnj" >

@@ -14,7 +14,7 @@ NOTE I rarely check my Git so I might follow back kinda late, also if im followi
 <img src="https://64.media.tumblr.com/9bd66b93da70064a5cd5e8204053cbc7/5bdcc0636532e640-74/s250x400/da8def6d88f4af7fe12fccaa7d2e82a2c102b392.gifv" width="150">
 ![blinkie](https://external-media.spacehey.net/media/sJMw7gnXLJaV1XTuCh-B7YbrAqPH6RcmVn5ONAMGpM7I=/https://64.media.tumblr.com/6d12a2374206fe6e8fde0798e3e32894/b4a8996229d50d4f-94/s250x400/3acc1cd69506129cb3b230f1a2d5765969d5869c.gifv)
 <img src="https://64.media.tumblr.com/c02f52d23a819b4d10eca58098003d21/1efe1bd42ac5ab51-32/s250x400/c608ebba94aebb1a632da7053196c496bce33fa9.gifv" width="150">
-<img src="https://64.media.tumblr.com/51a9f25a54d9315941e490a3639a5cc2/5bdcc0636532e640-b8/s250x400/b571690d0432b9d00ab7a191232fadef4ced4582.gifv" width="150">
+<img src="https://64.media.tumblr.com/e4f516d1b10db3e9ae28da62c3d41cc9/3e4daf8e6aeb9cd2-78/s400x600/c6a27e53f25c26b2317364b2164c985f18a205c3.gifv" width="150">
 <img src="https://64.media.tumblr.com/780208a27a789b5cb4d54fe8cf62f9d7/0aad569ecb591b21-72/s250x400/d5ec343fd70e71a1ae9b3a67e24f749fee8970aa.gifv" width="150">
 <img src="https://64.media.tumblr.com/8fa659b7e3b468ddc9e9a2a9c008ada2/626394bc4f6a8834-c8/s250x400/6f1b88cb6a7a0267746b4b926ef60415e850b171.gifv" width="150">
 <img src="https://64.media.tumblr.com/2c4752fec227669dc13da56c8460bcf7/70a124826bb1632d-ba/s250x400/ae9b0eee77045ea06bfc385ab1d146cdea90c336.gifv" width="150">

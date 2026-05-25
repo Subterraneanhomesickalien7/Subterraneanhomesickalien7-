@@ -1,7 +1,7 @@
 # Subterraneanhomesickalien7
 HI!!!
 Feel free to boop/whisper whenever!!!I promise im friendly gng😔 Ill probably make a Strawpage for more info soon, here are some blinkies for now (not mine)
-NOTE I never check my Git so I might follow back kinda late
+NOTE I never check my Git so I might follow back kinda late, also if im following anyone who is h0mophobic/r4cist/proshipper/n4zi or supports any hateful/harmful organizations in general let me know so i can unfollow them!
 <img src="https://external-media.spacehey.net/media/spSS3DhDcHcp7tpqoJH0CTiMoH288stkHBzz4_7gtgFo=/https://64.media.tumblr.com/ddca9fd5f24f3ec762caecc0c29a9584/7ca3b01fde00cddf-98/s400x600/6c70baa37d9a52a18d4db12b973507a9ccf7ea50.pnj" >
 <img src="https://external-media.spacehey.net/media/s0MlJDgtWjLC4ubntBroKfe2SoSbhhLVKPDtylA8JbqE=/https://64.media.tumblr.com/b7e1a5659f74ef790c27e32b72d0b5e7/7ca3b01fde00cddf-5e/s400x600/45e3ddde508ecab3fdf7c41d9c639fa35fbdc993.pnj" >
 ![blinkie](https://external-media.spacehey.net/media/sS07nLXiGtUg65LnUOoA-fE-dvpWmsN8GnYYh3w6wFPs=/https://64.media.tumblr.com/0469deffd26954baa988c7b295d463c2/ed43be6f38cfa87b-92/s400x600/aedd37f4c6d3770da056e1711c2619294d519b6c.pnj)

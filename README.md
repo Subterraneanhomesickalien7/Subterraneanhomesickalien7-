@@ -1,5 +1,5 @@
 # Subterraneanhomesickalien7
-HI!!!
+HI!!!!
 Feel free to boop/whisper whenever!!!I promise im friendly gng🤑🤑🤑 Ill make a decent Strawpage with more info soon....... here are some blinkies for now sigh sigh (not mine)
 NOTE I rarely check my Git so I might follow back kinda late, also if im following anyone who is h0mophobic/tr4nsphobic/r4cist/n4zi/proshipper/anti feminist or supports any hateful/harmful ideologies in general lmk so i can unfollow!
 <img src="https://64.media.tumblr.com/15c5fdc85ab2df03fe8bb27324f93524/a69bad83ef95edc9-18/s400x600/5c08c47abe3a791aac0022953d3b455a26b8652e.pnj" >

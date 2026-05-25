@@ -10,7 +10,7 @@ NOTE I rarely check my Git so I might follow back kinda late, also if im followi
 ![blinkie](https://external-media.spacehey.net/media/skrlaAcsX9W2Fc6zsnFbXYCnBb8GhKtXlExHQ947UyZc=/https://64.media.tumblr.com/0b1dbf5ce796579ec1edf9d389282163/5b39b9dd6b4ec42f-f7/s250x400/9c91c02d028f3c9ba64cde94f2db7ae47f60cad2.gifv)
 ![blinkie](https://external-media.spacehey.net/media/sH3a192qklSPJ7kFTubvaoCBLBHO1-p_UWpV6usumIXc=/https://64.media.tumblr.com/bfcd2051c92ab788818446a2476630a1/5b39b9dd6b4ec42f-93/s250x400/a74f50b51595d9e3016e6a1bff6d6128693fc8d9.gifv)
 ![blinkie](https://external-media.spacehey.net/media/sHBl_5Pvwj1J9GFZ8XaKiQBQIOjVkN0TC1KjeVly6Hqg=/https://64.media.tumblr.com/1522c8299d45245a84c43735c808478f/11cbf2e04c572962-d9/s250x400/1581543901651530a6baf11286fba3723a85ae1d.gifv)
-<img src="https://64.media.tumblr.com/6e674e71c9ec18a0b40ef18ec6f291cf/22455000d2d8544e-2e/s500x750/caaaeb87eab1125fe42eb8e97b0fdfefa085485e.gifv" >
+<img src="https://64.media.tumblr.com/6e674e71c9ec18a0b40ef18ec6f291cf/22455000d2d8544e-2e/s500x750/caaaeb87eab1125fe42eb8e97b0fdfefa085485e.gifv" width="150" >
 ![blinkie](https://64.media.tumblr.com/cc4664fa519daab024e5b9058620eed9/a0e824d0e7ce6f86-2a/s250x400/a5f3a762959dfffeb322ad3f3fdaa9c4df1ee223.gifv)
 ![blinkie](https://64.media.tumblr.com/2860a62952f77cf1de482468d47da42b/b0312ff9d0c62524-0d/s250x400/3966ecc7ff924a3fa13f3828f7d675bd58b885f8.gifv)
 <img src="https://64.media.tumblr.com/9bd66b93da70064a5cd5e8204053cbc7/5bdcc0636532e640-74/s250x400/da8def6d88f4af7fe12fccaa7d2e82a2c102b392.gifv" width="150">

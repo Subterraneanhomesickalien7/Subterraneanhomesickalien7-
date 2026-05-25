@@ -1,7 +1,7 @@
 # Subterraneanhomesickalien7
 HI!!!
-Feel free to boop/whisper whenever!!!I promise im friendly gng😔 Ill make a decent Strawpage with more info soon, here are some blinkies for now (not mine)
-NOTE I rarely check my Git so I might follow back kinda late, also if im following anyone who is h0mophobic/r4cist/proshipper/n4zi or supports any hateful/harmful ideologies in general lmk so i can unfollow!
+Feel free to boop/whisper whenever!!!I promise im friendly gng🤑🤑🤑 Ill make a decent Strawpage with more info soon....... here are some blinkies for now sigh sigh (not mine)
+NOTE I rarely check my Git so I might follow back kinda late, also if im following anyone who is h0mophobic/tr4nsphobic/r4cist/n4zi/proshipper/anti feminist or supports any hateful/harmful ideologies in general lmk so i can unfollow!
 <img src="https://64.media.tumblr.com/15c5fdc85ab2df03fe8bb27324f93524/a69bad83ef95edc9-18/s400x600/5c08c47abe3a791aac0022953d3b455a26b8652e.pnj" >
 <img src="https://external-media.spacehey.net/media/spSS3DhDcHcp7tpqoJH0CTiMoH288stkHBzz4_7gtgFo=/https://64.media.tumblr.com/ddca9fd5f24f3ec762caecc0c29a9584/7ca3b01fde00cddf-98/s400x600/6c70baa37d9a52a18d4db12b973507a9ccf7ea50.pnj" >
 <img src="https://external-media.spacehey.net/media/s0MlJDgtWjLC4ubntBroKfe2SoSbhhLVKPDtylA8JbqE=/https://64.media.tumblr.com/b7e1a5659f74ef790c27e32b72d0b5e7/7ca3b01fde00cddf-5e/s400x600/45e3ddde508ecab3fdf7c41d9c639fa35fbdc993.pnj" >
@@ -28,3 +28,4 @@ NOTE I rarely check my Git so I might follow back kinda late, also if im followi
 <img src="https://64.media.tumblr.com/67e4d9ca3636b64bb21e231078e32c10/3f4cf17713bea9e0-7d/s250x400/dc0320490e7885d9165a039d9456d33424d465e4.gifv" width="150">
 <img src="https://64.media.tumblr.com/4966dacc3a478f5cceab20f309e69ff4/6b6c9cf32351e81a-05/s250x400/8569fce3bdaff6f520322c23ad07bf7466857b73.gifv" width="150">
 <img src="https://64.media.tumblr.com/9348a5d0ce5c59849b9fa1e4f9aebb22/0999fc1a829b3b53-0b/s250x400/494a4930f6d9197d6eb8037d4018b3f6d6bb38f0.gifv" width="150">
+<img src="https://64.media.tumblr.com/b4f2b4d1c1df845711e575a01c14a175/306cc3accbf69347-11/s250x400/13c62a550fbe2130e2dce61e1e1c7477d312d689.gifv" width="150">
